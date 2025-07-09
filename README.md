@@ -3,9 +3,6 @@
 </p>
 
 
-<p align="center">
-ཁㅤㅤelliot x azure ceo !ㅤㅤᛝ
-</p>
 
 
 <p align="center">
