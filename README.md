@@ -1,8 +1,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=0A7E00&width=800&lines=I'm+gonna+tear+off+the+nails+from+your+beautiful+fingertips%2C;And+crush+your+joints+with+a+pair+of+pliers." alt="Typing SVG" /></a>
 
-https://github.com/user-attachments/assets/1c956d6f-68fe-45ba-9f1a-c77aa988918b
 
-
+![](https://media.tenor.com/aGqrc3hcFj8AAAPo/interface-vocaloid.mp4)
 
 
 
